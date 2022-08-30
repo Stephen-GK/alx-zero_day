@@ -1,1 +1,1 @@
-Oh Lord bless me expand my trrritory
+Lord bless me, expand my teritory
