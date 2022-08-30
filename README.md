@@ -1,1 +1,1 @@
-Lord bless me, expand my teritory
+God did
